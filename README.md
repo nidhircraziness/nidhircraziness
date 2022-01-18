@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning ... JAVA
 - 📫 How to reach me ...
 On Discord;
-<user name= CoolGAmer2696#0075>
-</username> (●ˇ∀ˇ●) 
+< user name= CoolGAmer2696#0075 >
+< /username > (●ˇ∀ˇ●) 
